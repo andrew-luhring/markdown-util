@@ -77,7 +77,15 @@ Midway Moving & Storage CUSTOMER CLAIM FORM
 |----|----|M-audio Oxygen 49 keyboard| gift | 2 broken faders due to improper storage; there was no bubble wrap or padding of any kind | 1.5 years | $149 |
 |----|----|Black Star (vinyl record) | was wrapped in saran wrap on top of the crate it was supposed to be in. now it's warped.|  | 3 years | $20 |
 |----|----| Dj Godfather c-u later (vinyl record) |was placed on top record crate like black star record above |3 years ago | 6 years |$10|
-samsung 2233sw lcd monitor | stored face down in a box on top of hard pointy objects without bubble wrap or protection of any kind. it's ruined.
+| | | samsung 2233sw lcd monitor | stored face down in a box on top of hard pointy objects without bubble wrap or protection of any kind. it's ruined. | gift | 2 years old | replacement.|
+| | | Apple Cinema Display Monitor | stored face down in a box on top of hard pointy objects without bubble wrap or protection of any kind. just like the samsung monitor- ruined. | gift | 6 years | replacement.|
+|----|----|Sony KLV-ST3A10 tv| stored face down on top of hard pointy objects without bubble wrap or protection of any kind. ruined. it was really old but still worked. |gift | 9 years | |
+|----|----| hand-crafted end-table given to me by my grandmother from Turkey. | It has removeable legs- all you have to do to remove them is untwist a winged nut. rather than removing the legs, the tables were packed into a box... kind of... which caused a number of cracks in the decorative top/side and completely snapped 1 leg off. | gift | old. antique-age old.| they can't be replaced. can't relaly be repaired either|
+|----|----| hand-crafted end-table given to me by my grandmother from Turkey. | It has removeable legs- all you have to do to remove them is untwist a winged nut. rather than removing the legs, the tables were packed into a box one on top of the other which caused a number of cracks in the decorative top/side and completely snapped 1 leg off. | gift | old. antique-age old.| they can't be replaced.|
+
+|----|----|Queen Size Low Wood Cutout Headboard from West Elm.| Scrapes, and chips in wood due to improper storage / moving. they weren't wrapped with any saran wrap or anything like how furniture is supposed to be wrapped | 2010 | 4 years | |
+|----|----|Queen Size Low Wood Cutout Bed | Scrapes, and chips in wood due to improper storage / moving. they weren't wrapped with any saran wrap or anything like how furniture is supposed to be wrapped. | 2010 | 4 years | |
+
 
 
 
