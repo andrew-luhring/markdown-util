@@ -83,7 +83,6 @@ Midway Moving & Storage CUSTOMER CLAIM FORM
 |----|----|Sony KLV-ST3A10 tv| stored face down on top of hard pointy objects without bubble wrap or protection of any kind. ruined. it was really old but still worked. |gift | 9 years | |
 |----|----| hand-crafted end-table given to me by my grandmother from Turkey. | It has removeable legs- all you have to do to remove them is untwist a winged nut. rather than removing the legs, the tables were packed into a box... kind of... which caused a number of cracks in the decorative top/side and completely snapped 1 leg off. | gift | old. antique-age old.| they can't be replaced. can't relaly be repaired either|
 |----|----| hand-crafted end-table given to me by my grandmother from Turkey. | It has removeable legs- all you have to do to remove them is untwist a winged nut. rather than removing the legs, the tables were packed into a box one on top of the other which caused a number of cracks in the decorative top/side and completely snapped 1 leg off. | gift | old. antique-age old.| they can't be replaced.|
-
 |----|----|Queen Size Low Wood Cutout Headboard from West Elm.| Scrapes, and chips in wood due to improper storage / moving. they weren't wrapped with any saran wrap or anything like how furniture is supposed to be wrapped | 2010 | 4 years | |
 |----|----|Queen Size Low Wood Cutout Bed | Scrapes, and chips in wood due to improper storage / moving. they weren't wrapped with any saran wrap or anything like how furniture is supposed to be wrapped. | 2010 | 4 years | |
 
