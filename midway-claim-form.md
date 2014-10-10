@@ -71,10 +71,15 @@ Midway Moving & Storage CUSTOMER CLAIM FORM
 
 | Inventory Number | Article Weight | Article Description |  Description of Loss/Damage | Date of Purchase | Age of Item | Cost to Repair |
 |----|----|----|----|----|----|----|
-| | | | | | | |
+|No idea | No idea | Optoma HD25-LV DLP HD projector  | Stolen. Whether or not it ever made it into a box is beyond me, but I paid to have everything in my apartment packed so assumed it would be in there and it is not.  | gift | less than a year | $1099 (best buy) |
+|No idea | No idea | Fender Standard Stratocaster  | Because of improper packing + storage (was stored upright in a box, OUTSIDE of its' case, with it's case smashed up against the front of it with 2 2,000 watt Concert speakers on top of it), the neck is now warped. It'd be cheaper to replace than repair.  | a long time ago  | 12 years | $199.99 replacement |
+|no idea |no idea| akai mpd32 usb controller | 4 of the 8 cross-faders are bent due to improper storage; it was not wrapped in bubble wrap or anything, was stored on the bottom of a box with heavy stuff placed on top of it. one of those 4 faders no longer functions at all. | gift | 1.5 years  | replacement parts: 4 * $15 + shipping; hourly rate of repair $30-40. Original cost $299 |
+|----|----|M-audio Oxygen 49 keyboard| gift | 2 broken faders due to improper storage; there was no bubble wrap or padding of any kind | 1.5 years | $149 |
+|----|----|Black Star (vinyl record) | was wrapped in saran wrap on top of the crate it was supposed to be in. now it's warped.|  | 3 years | $20 |
+|----|----| Dj Godfather c-u later (vinyl record) |was placed on top record crate like black star record above |3 years ago | 6 years |$10|
+samsung 2233sw lcd monitor | stored face down in a box on top of hard pointy objects without bubble wrap or protection of any kind. it's ruined.
 
 
-\￼￼￼￼￼￼￼￼￼￼￼￼*If you chose basic value (.30¢ a pound per article) Midway’s liability would be $60.00.
 
 In order to expedite your claim, please provide us with written documentation including the date of purchase and amount paid for said item. Also, send pictures of the damaged item(s) so we may determine if our repairman can fix the damage. Finally, purchase receipts will be necessary to expedite your claim.
 
